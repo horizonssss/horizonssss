@@ -1,0 +1,5 @@
+- 👋 G'day, I’m @horizonssss
+- 👀 I’m interested in everything for the moment
+- 🌱 I’m currently doing BS CS
+- 👨‍💻 I’m looking to collaborate on some beginner things
+- 📫 I cannot be reached at this time!
